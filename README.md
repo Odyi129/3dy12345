@@ -15,3 +15,7 @@ k5 👇🏻
 
 https://www.dropbox.com/scl/fi/4dtp14vmglh3s5uf9k8uz/KIA-K5-2022.zip?rlkey=yk5uc8jdz1pojw6k37wdih7ql&st=52l7a9lq&dl=1
 
+Caprice 👇🏻
+
+https://www.dropbox.com/scl/fi/pen0rh8xip8554qjozyr9/Chevrolet_Caprice_FIRBY.zip?rlkey=u3m1nm94b5xglsuwtqh25q280&st=jdv09y9a&dl=1
+
