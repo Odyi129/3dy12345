@@ -25,3 +25,7 @@ Map 👇🏻
 
 
 https://www.dropbox.com/scl/fi/tcarueedulaomy0w6vnyy/jubail-city-By-M6Noo5.zip?rlkey=qkfdq9qc2k8sy1sci66lsizxx&st=o2queshx&dl=1
+
+Map 2 
+
+https://www.dropbox.com/scl/fi/2iro4i243ymzig8aii08z/Riyadh-Tookee-Map.zip?rlkey=gqbag0av2sy5zo7xopxh71yd1&st=zqpmv83o&dl=1
