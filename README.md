@@ -37,3 +37,7 @@ https://www.dropbox.com/scl/fi/a3tcgxdaogsh3zfbobdi5/wLi-corolla.zip?rlkey=ez5ht
 hilux 👇🏻
 
 https://www.dropbox.com/scl/fi/m8wxfq1a9lln1h3g92rk6/Abo3Zmh_hilux_v1.zip?rlkey=rx6nqt7q3f749xp3gchinwtwf&st=etmrtydx&dl=1
+
+Map 2 👇🏻
+
+https://www.dropbox.com/scl/fi/i0w1stjnwitvul3zb22ol/3thim_AL_SLy.zip?rlkey=ff0zivmnmp4yqs6iidcfzgone&st=t1nflnsf&dl=1
