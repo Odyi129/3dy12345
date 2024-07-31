@@ -57,3 +57,8 @@ https://www.dropbox.com/scl/fi/9rle0brufc0bxded8anxu/alfrusiya-wLi.zip?rlkey=sg0
 croz 11 👇🏻
 
 https://www.dropbox.com/scl/fi/usf5887xcw6hx4nhyrvqq/cruzej300.zip?rlkey=gdhwoir983ltt4xahan0sln6e&st=yhpu293o&dl=1
+
+
+camry 2012 👇🏻
+
+https://www.dropbox.com/scl/fi/j4sqofwznv5ty0ap6au0e/metocamry2012.zip?rlkey=qmt6q9l3k0b0t4rs0xy3f7r0p&st=sur9vm43&dl=1
