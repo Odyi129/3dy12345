@@ -48,3 +48,7 @@ https://www.dropbox.com/scl/fi/9ik354eaexkfxp4y1b8my/AM-hulix_1.zip?rlkey=ypu188
 
 maxima 99 👇🏻
 https://www.dropbox.com/scl/fi/ypj9uh8p77y9a8861m0qi/Ali-Maxima-96_modland.zip?rlkey=at3xkichnkjldyhtek12nnh0y&st=02p97e6p&dl=1
+
+Map 3 👇🏻
+
+https://www.dropbox.com/scl/fi/9rle0brufc0bxded8anxu/alfrusiya-wLi.zip?rlkey=sg0rroe4bsfvm987unuix6dd8&st=5eivubfr&dl=1
