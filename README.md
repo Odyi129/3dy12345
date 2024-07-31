@@ -46,6 +46,5 @@ Hilux Gmarh 👇🏻
 
 https://www.dropbox.com/scl/fi/9ik354eaexkfxp4y1b8my/AM-hulix_1.zip?rlkey=ypu188ygpzz2e2k049rjqdz6m&st=wj2iqfiz&dl=1
 
-camry 2002 👇🏻
-
-https://www.dropbox.com/scl/fi/e7zb1y5fe814a4ejoum34/ali_kdrd_camry.zip?rlkey=nlu5jy66ipllr7qcqmvychb8n&st=qsxr356p&dl=1
+maxima 99 👇🏻
+https://www.dropbox.com/scl/fi/ypj9uh8p77y9a8861m0qi/Ali-Maxima-96_modland.zip?rlkey=at3xkichnkjldyhtek12nnh0y&st=02p97e6p&dl=1
