@@ -45,3 +45,7 @@ https://www.dropbox.com/scl/fi/i0w1stjnwitvul3zb22ol/3thim_AL_SLy.zip?rlkey=ff0z
 Hilux Gmarh 👇🏻
 
 https://www.dropbox.com/scl/fi/9ik354eaexkfxp4y1b8my/AM-hulix_1.zip?rlkey=ypu188ygpzz2e2k049rjqdz6m&st=wj2iqfiz&dl=1
+
+camry 2002 👇🏻
+
+https://www.dropbox.com/scl/fi/e7zb1y5fe814a4ejoum34/ali_kdrd_camry.zip?rlkey=nlu5jy66ipllr7qcqmvychb8n&st=qsxr356p&dl=1
