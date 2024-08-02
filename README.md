@@ -67,3 +67,7 @@ https://www.dropbox.com/scl/fi/j4sqofwznv5ty0ap6au0e/metocamry2012.zip?rlkey=qmt
 accnt 👇🏻
 
 https://www.dropbox.com/scl/fi/d2pyckq3y5i1x51ce757c/Hyundai_Accent_2010_KHwylD.zip?rlkey=c8ds317p37z75b8oax7oxoayo&st=xz5cevoi&dl=1
+
+optma 👇🏻
+
+https://www.dropbox.com/scl/fi/xyklnm5bheybvf1ftr1w6/KIA_OPTIMA_modland.zip?rlkey=yumjfuh90t2c1i07xm73tplke&dl=1
