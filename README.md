@@ -71,3 +71,8 @@ https://www.dropbox.com/scl/fi/d2pyckq3y5i1x51ce757c/Hyundai_Accent_2010_KHwylD.
 optma 👇🏻
 
 https://www.dropbox.com/scl/fi/xyklnm5bheybvf1ftr1w6/KIA_OPTIMA_modland.zip?rlkey=yumjfuh90t2c1i07xm73tplke&dl=1
+
+
+G90 👇🏻
+
+https://www.dropbox.com/scl/fi/1km1g50zz5o8duck407d3/2020-Genesis-G90.zip?rlkey=z9qe7lf6xyhr51tiopb9gc70a&st=42lzyxj5&dl=1
